@@ -5,4 +5,4 @@ When I lived in Green Bay, I went to Southwest High School. At Southwest I was o
 
 At Allegheny, I plan on becoming a Physics major, History minor and play basketball. With my Physics major I want to become an Aerospace Engineer. So far at Allegheny I started to make some great friends and memories. So far, college has been the best time of my life.    
 
-The theme of this course, "Software Everywhere" relates to my life because I use software with engineering and with computer coding I do with my cousin back at home.
+The theme of this course, "Software Everywhere" relates to my life because I use software with engineering and with computer coding I do with my cousin back at home. Even though Computer Science might not be a huge impact in my future life it would be nice to understand what the IT customers are doing in the engineering field. 
